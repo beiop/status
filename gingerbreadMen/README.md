@@ -4,6 +4,7 @@ So I find myself rewriting my status three times, trying desperately to condense
 This appears to have caused greater confusion among my regular status readers as the two responses I have received are nothing like what I meant:
 
 > Then why are they called gingerbread men if they don't taste like ginger?
+
 *but they do taste like ginger*
 
 > Such a noble soul. See how he does not eat the man-shaped cookies? It is because his pure heart could not bear to consume a substance that could possibly possess the humanity of his fellow kind, regardless of the familiar form it takes. It is only after learning (through wise intuition) that he discerns the treats’ composition as one of ginger, and not intellectual camaraderie, that he grants himself the right to afford himself satiation.
