@@ -10,11 +10,9 @@ This appears to have caused greater confusion among my regular status readers as
 > Such a noble soul. See how he does not eat the man-shaped cookies? It is because his pure heart could not bear to consume a substance that could possibly possess the humanity of his fellow kind, regardless of the familiar form it takes. It is only after learning (through wise intuition) that he discerns the treats’ composition as one of ginger, and not intellectual camaraderie, that he grants himself the right to afford himself satiation.
 
 *idk what you're talking about bruv, I've eaten like five now and aim to consume more later...
-> Let me explain. You had Man-shaped cookies for three months now. Maybe you didn't eat them because you were afraild they were alive, or at least had sentience. And since you have now found out they were ginger flavored, you deemed them not sentient and you could continue to eat them.
+> Let me explain. You had Man-shaped cookies for three months now. Maybe you didn't eat them because you were afraid they were alive, or at least had sentience. And since you have now found out they were ginger flavored, you deemed them not sentient and you could continue to eat them.
 
-*ooh, I didn't get that. well uhh, makes sense. except that means I had to try and eat one to find out they were ginger flavored. wouldn't that refute the whole point?* 
-
-So here is my new attempt, unbound by any character limit.
+*ooh, I didn't get that. well uhh, makes sense. except that means I had to try and eat one to find out they were ginger flavored. wouldn't that refute the whole point?*
 
 I have these **man-shaped** cookies sitting in my closet for three months now. They've been serving dutifully, alongside other foodstuffs, as potential snacks for when I become hungry. It has been 3 months since I was gifted them, and I have yet to give them a try. There are two main reasons why I've yet to pick them:
 1. These cookies come with a feature of being able to balance on the lip of a mug to be enjoyed alongside any mugged beverage. This leads me to assume there has been a compromise on their flavor to enable this feature.
